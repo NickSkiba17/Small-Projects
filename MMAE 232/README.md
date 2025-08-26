@@ -1,1 +1,1 @@
-Here are soem Inventor drawing I have worked on.
+Here are some Inventor drawing I have worked on.
